@@ -10,5 +10,6 @@ New knowledge leads to novel actions.
 Novel actions develop new procedures.
 New procedures lead to innovation.
 Innovation leads to new traditions.
+Tradition is tradition.
 
 Andrew Julio
